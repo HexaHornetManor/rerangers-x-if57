@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Script exclusive is the best re:rangers x Script, featuring auto-upgrade and fly. Safe and powerful for all your needs.
 
 
 
